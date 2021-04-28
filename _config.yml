@@ -9,8 +9,8 @@
 locale                   : "en-US"
 title                    : "Josh Derrick / Microbiolgist"
 title_separator          : "-"
-name                     : "Josh Derrick""
-description              : &description "CMDB PhD student. Runner. Vegan. Musician "
+name                     : "Josh Derrick"
+description              : "CMDB PhD student. Runner. Vegan. Musician "
 url                      : https://atiredvegan.github.io # the base hostname & protocol for your site e.g. "https://mmistakes.github.io"
 baseurl                  : "" # the subpath of your site, e.g. "/blog"
 repository               : "https://atiredvegan.github.io

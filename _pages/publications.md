@@ -13,4 +13,6 @@ author_profile: true
 
 **Creative Writing** 
 
-1. **[Ser Ghostwriter](https://www.amazon.com/Ser-Ghostwriter-Joshua-Derrick-ebook/dp/B09NT3S21C/ref=sr_1_1?crid=2NYXTGE0B0Y2&keywords=ser+ghostwriter&qid=1707165309&sprefix=ser+ghostwriter%2Caps%2C71&sr=8-1)** This was my creative writing thesis from college. It combines the plot of George R. R. Martin's the Hedge Knight with characters based on Romantic Poets and a magic system based on the quality of verse. I hope to get to work on a sequel soon(ish). 
+1. **[Ser Ghostwriter](https://www.amazon.com/Ser-Ghostwriter-Joshua-Derrick-ebook/dp/B09NT3S21C/ref=sr_1_1?crid=2NYXTGE0B0Y2&keywords=ser+ghostwriter&qid=1707165309&sprefix=ser+ghostwriter%2Caps%2C71&sr=8-1)** This was my creative writing thesis from college. It combines the plot of George R. R. Martin's the Hedge Knight with characters based on Romantic Poets and a magic system based on the quality of verse. I hope to get to work on a sequel soon(ish).
+
+2. **[Dreams from Yesterday](https://cmsw.mit.edu/wp/wp-content/uploads/form-maker/Dreams%20from%20Yesterday.pdf)** A collection of haikus of haikus that I wrote for poetry class in 2018 and 2020. 

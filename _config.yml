@@ -82,11 +82,11 @@ analytics:
 author:
   name             : "Josh Derrick"
   avatar           : "profile.jpg"
-  bio              : "MIT Grad and JHU CMDB PHD candidate. Interested in the microbiome, nutrition and running."
+  bio              : "MIT Grad and JHU CMDB PHD candidate in the Ludington/Farber Labs. Interested in the microbiome, nutrition and running."
   location         : "Baltimore, MD"
   employer         :
   pubmed           :
-  googlescholar    :
+  googlescholar    :  https://scholar.google.com/citations?user=nFj3HuYAAAAJ&hl=en
   email            :  "jderric4@jhu.edu"
   researchgate     :  # example: "https://www.researchgate.net/profile/yourprofile"
   uri              :
@@ -102,7 +102,7 @@ author:
   instagram        :
   impactstory      : #"https://profiles.impactstory.org/u/xxxx-xxxx-xxxx-xxxx"
   lastfm           :
-  linkedin         : "https://www.linkedin.com/in/joshua-d-ba1016b1"
+  linkedin         : 
   orcid            : "https://orcid.org/0000-0002-2062-9346"
   pinterest        :
   soundcloud       :

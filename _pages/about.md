@@ -20,3 +20,7 @@ As an undergrad at MIT, I studied methylation of flowering plants in the lab of 
 # Other 
 
 I'm a former member of the Johns Hopkins and MIT Cross Country teams (**[TFRRS](https://www.tfrrs.org/athletes/6082124/Johns_Hopkins/Josh_Derrick.html)**). I still run competitively for **[Falls Road Run Club](https://shop.baltimorerunning.com)** in Baltimore City.  In addition to this, I'm an avid reader and aspiring polyglot. I blog regularly on **[substack](https://deusexvita.substack.com)** about reading, self-analysis, Romance languages, and crunchy things. The blog is cross-posted on this website. My Goodreads **[h-index](https://www.goodreads.com/review/list/63766642?sort=review&view=reviews)** (x reviews with at least x likes) is 4. 
+
+# Tutoring
+I worked as a Mathnasium tutor in highschool and early college, and tutored 1 on 1 throughout college and grad school. I love teaching and feel qualified to help out with Math, Biology, Literature, and Spanish. Shoot me an email if you are interested and we can set something up on zoom or in person (Baltimore City only).  
+

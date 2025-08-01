@@ -69,7 +69,43 @@ Audiobook available.
 
 ### Fantasy 
 
-Olvidado Rey Gudú (España)
-Reviewed: Reviewed in depth here. Absolutely nothing like it in English. Highly recommend. Also recommend a reread at a more advanced level.
+**[Olvidado Rey Gudú](https://www.amazon.com/-/es/Olvidado-Gudú-Spanish-María-Matute/dp/8423338061)** (España)
+
+Reviewed: Reviewed in-depth [here](https://medium.com/language-hub/olvidado-rey-gud%C3%BA-best-fantasy-youve-never-read-5a8228fb330a). Absolutely nothing like it in English. Highly recommend. Also recommend a reread at a more advanced level.
+
 Audiobook available
+
+**[La saga de los confines](https://www.amazon.com/-/es/DIAS-DEL-VENADO-SAGA-CONFINES/dp/9877252767/ref=sr_1_3?dib=eyJ2IjoiMSJ9.5GwltknOgCRw8nUycbwJjdokMJlakax1BKeZ4EkFVrrEDr80wTrP16kQ1DjxheX5azH37eEMuQKpBcOCkw5wR1x1g_tMul8vYsvUdYUEYWrIk7Qgw5B9CjqiQ_SGi9Z8B27CtX7Nnoefq_gnRXqrp3l_7SG5F0IFtZVGC82XXQQjq9q4fB9aN9P66NXdAju2OU9ELABPgNgm0Tmor3V6e9UBwqO2umiDBWGlDRhHDcY.vw-D_47lmapYQTVCXPIDQGqm1dFEARvpCCS7amBJZJ8&dib_tag=se&qid=1754075429&refinements=p_27%3ALILIANA+BODOC&s=books&sr=1-3)** (Argentina)
+
+Reviewed: I have no in-depth review of this (still have to finish the third book). This trilogy is a fantasy retelling of the invasion of the Americas with a big dose of Tolkein. The writing can be a little confusing at times, but the plot is very straightforward. 
+
+Audiobook available
+
+### General Fiction
+
+**[Habana año cero](https://www.charmcitybooks.com/item/4UdsAIPOsR1Qrx3HJ8Qvjg)** (Cuba)
+
+Part chic-lit, part noir, this short book was predictable, but painted a vivid picture of the effects of the fall of the Soviet Union on Cuba on levels both personal and political. I found out about this book through Charco Press, which is a British publisher/translator that aims to bring new Latin-American fiction to English readers.
+
+Audiobook available
+
+**[El libro negro de las horas](https://www.google.com/search?client=safari&rls=en&q=el+libro+negro+de+las+horas&ie=UTF-8&oe=UTF-8)** (España)
+
+Never have I ever read such a nerdy thriller in my life. This is a book about the criminal underworld surrounding…rare book dealers. Nothing like it that I’ve seen in English.
+
+Audiobook available
+
+## Advanced Books
+**Criteria to Start**: Honestly, these are the kind of books that you would struggle with in your native language, so there isn’t a set start point. I wouldn’t tackle until you’ve got at least 4 million words and some intermediate books under your belt.
+
+### Fantasy
+
+**[Cuentos Completos de Jorge Luis Borges](https://www.charmcitybooks.com/item/3bfSPEKfdTdPjpCDseatOA)** (Argentina)
+Reviewed: Haven’t reviewed in depth, but one of the best things I’ve ever read. Hard as fuck though. I discuss in various blog posts [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-800-hour-update-3d8349d6af9b), [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-900-hour-update-e5350ac70c83) and [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-1000-hour-update-6ab65fe56a71).
+Audiobook available
+
+
+
+
+
 

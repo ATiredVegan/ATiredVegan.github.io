@@ -102,7 +102,16 @@ Audiobook available
 
 **[Cuentos Completos de Jorge Luis Borges](https://www.charmcitybooks.com/item/3bfSPEKfdTdPjpCDseatOA)** (Argentina)
 Reviewed: Haven’t reviewed in depth, but one of the best things I’ve ever read. Hard as fuck though. I discuss in various blog posts [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-800-hour-update-3d8349d6af9b), [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-900-hour-update-e5350ac70c83) and [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-1000-hour-update-6ab65fe56a71).
+
 Audiobook available
+
+### Philosophy
+
+**[La Rebelión de las Masas por José Ortega y Gasset](https://www.charmcitybooks.com/item/oJynxZFvq8d3cJES1QgB9w)** (España)
+Reviewed: Reviewed in-depth [here](https://open.substack.com/pub/deusexvita/p/review-5-of-2024-del-sentimento-tragico?r=u4cqu&utm_campaign=post&utm_medium=web&showWelcomeOnShare=true). Was a pretty difficult read, but mainly because of the ideas, although there were numerous Spanish words I was not familiar with. A strident cultural critique of our modern society
+
+Audiobook available
+
 
 
 

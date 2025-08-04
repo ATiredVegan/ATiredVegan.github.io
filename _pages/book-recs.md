@@ -39,7 +39,7 @@ Reviewed: Not reviewed in-depth, but I think this book is pretty bad. On the lev
 
 **[Cajas de Cartón](https://www.charmcitybooks.com/item/15rYKab_Kw-Vc4UhWch5qg)** (Estados Unidos)
 
-Reviewed: I havne't reviewed this in-depth, but I recommend it highly. Memoirs of a college professor about his childhood growing up as a migrant farm laborer. I discuss the book a little in this [blog post](https://medium.com/language-hub/refold-mass-immersion-approach-spanish-400-hour-update-c8649f6ab8de). 
+Reviewed: I haven't reviewed this in-depth, but I recommend it highly. Memoirs of a college professor about his childhood growing up as a migrant farm laborer. I discuss the book a little in this [blog post](https://medium.com/language-hub/refold-mass-immersion-approach-spanish-400-hour-update-c8649f6ab8de). 
 
 Audiobook available
 
@@ -95,13 +95,19 @@ Never have I ever read such a nerdy thriller in my life. This is a book about th
 
 Audiobook available
 
+### Science Fiction
+
 ## Advanced Books
 **Criteria to Start**: Honestly, these are the kind of books that you would struggle with in your native language, so there isn’t a set start point. I wouldn’t tackle until you’ve got at least 4 million words and some intermediate books under your belt.
 
 ### Fantasy
 
 **[Cuentos Completos de Jorge Luis Borges](https://www.charmcitybooks.com/item/3bfSPEKfdTdPjpCDseatOA)** (Argentina)
-Reviewed: Haven’t reviewed in depth, but one of the best things I’ve ever read. Hard as fuck though. I discuss in various blog posts [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-800-hour-update-3d8349d6af9b), [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-900-hour-update-e5350ac70c83) and [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-1000-hour-update-6ab65fe56a71).
+Haven’t reviewed in depth, but one of the best things I’ve ever read. Hard as fuck though. I discuss in various blog posts [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-800-hour-update-3d8349d6af9b), [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-900-hour-update-e5350ac70c83) and [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-1000-hour-update-6ab65fe56a71).
+
+**[Cien años de soledad por GGM](https://www.charmcitybooks.com/item/BKDVdXIulNxafzJxUTb7Dw)*8 (Colombia)
+
+Reviewed in-depth [here](https://deusexvita.substack.com/p/review-2-of-2025-cien-anos-de-soledad). This is not really a novel, but a styilized historical retelling of the history of Colombia and I found it very difficult for that reason. Gabo also loves his low frequency vocab. I would read other of his stories, like Crónica, before tackling this one. 
 
 Audiobook available
 
@@ -109,6 +115,11 @@ Audiobook available
 
 **[La Rebelión de las Masas por José Ortega y Gasset](https://www.charmcitybooks.com/item/oJynxZFvq8d3cJES1QgB9w)** (España)
 Reviewed: Reviewed in-depth [here](https://open.substack.com/pub/deusexvita/p/review-5-of-2024-del-sentimento-tragico?r=u4cqu&utm_campaign=post&utm_medium=web&showWelcomeOnShare=true). Was a pretty difficult read, but mainly because of the ideas, although there were numerous Spanish words I was not familiar with. A strident cultural critique of our modern society
+
+** [Del sentimiento trágico de la vida por Miguel de Unamuno](https://www.charmcitybooks.com/item/eK5xTFXACoYacOoW4F4BUw)** (España)
+Reviewed: Reviewed in-depth [here](https://open.substack.com/pub/deusexvita/p/review-5-of-2024-del-sentimento-tragico?r=u4cqu&utm_campaign=post&utm_medium=web&showWelcomeOnShare=true). A difficult read, but mainly because of the quoted philosophers and references, and less so because of the Spanish. I did however, find Unamuno less straightforward than Ortega y Gasset, and thus more difficult to understand.
+Audiobook available on YouTube
+
 
 Audiobook available
 

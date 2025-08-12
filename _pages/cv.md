@@ -75,6 +75,6 @@ Work experience
  
 Non-English Language Proficiency 
 ======
-* Spanish (DELE B2) 
+* Spanish ([DELE B2](https://atiredvegan.github.io/files/DELEscore.pdf)) 
 * Italian (Estimated CEFR A2, could read a basic scientific text without translation)
 

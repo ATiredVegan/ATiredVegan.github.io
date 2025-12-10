@@ -35,6 +35,12 @@ Audiobook available
 
 Reviewed: Not reviewed in-depth, but I think this book is pretty bad. On the level of Fourth Wing. Might be your jam if you like that kind of thing though. 
 
+**[El Bestiario de Axlin]((https://www.amazon.com/-/es/dp/B089T9M3XZ/ref=sr_1_2?crid=1MVVTS2Q8T06X&dib=eyJ2IjoiMSJ9.POQe9TqgNLGzb0-sFpIcuqs9Coax_CppAD1fY5NGU5VrizWYP9Se4lR9XIIcqr3ltQWksdBKV5xBolQo_ZFFHHRSNefw6n93tzH-cyeF7S4.wI8mb7IvNKdVRJ4L2hIDmodr9uvOlg37JA9-8kik948&dib_tag=se&keywords=el+bestiario+de+axlin&qid=1765395899&sprefix=el+bestiario%2Caps%2C99&sr=8-2)** (España)
+
+Reviewed: Not reviewed in-depth, but much better than Memorias Idhun. One of the best post-apocalyptic settings I've ever seen. Discussed [here](https://deusexvita.substack.com/p/november-2025-book-round-up)
+
+Audiobook available.
+
 ### Memoir 
 
 **[Cajas de Cartón](https://www.charmcitybooks.com/item/15rYKab_Kw-Vc4UhWch5qg)** (Estados Unidos)
@@ -94,6 +100,12 @@ Audiobook available
 Reviewed: no in-depth review of this guy. Never have I ever read such a nerdy thriller in my life. This is a book about the criminal underworld surrounding…rare book dealers. Nothing like it that I’ve seen in English.
 
 Audiobook available
+
+**[Persona normal](https://www.amazon.com/-/es/Persona-normal-Normal-Person-Spanish/dp/6073907214/ref=sr_1_1?__mk_es_US=ÅMÅŽÕÑ&crid=3IXZL695N4E8C&dib=eyJ2IjoiMSJ9.MJHtGqoOhOY0X09Hus0WPQOuckYpXJDpeVLpaC5kn4uDnrEiFovImPuRl2D2lLpGIvsvC-CyJYTJQ8k5VcUjadrsrOxqGrHKpr2GV2pHI0F9BE6PuXF0bbg6lQLsMlib3qc4QCf5XRMQGvkFp0es7c6UliBaK397uJoTvNOw7LnB5Xbc6E2iSO5WFgt0Pd8vShwk1RPm7DMtxIU4v5z9MrfReGjOX0zPym6G29ocmcE.kLY2Cgs3i-rtznhaOONYzB2bX1Ry2FPyAJqH1kftV4M&dib_tag=se&keywords=persona+normal&qid=1765396309&sprefix=persona+normal%2Caps%2C100&sr=8-1)** (España) 
+
+Reviewed: Ass book. Read this for Refold book club and we all found it insufferable. Don't read 
+
+Audiobook available 
 
 ### Historical Fiction
 
@@ -165,6 +177,10 @@ Plenty of similar books in English (Ultralearning, Make it Stick, etc.), but thi
 
 Audiobook available
 
+**[La naturaleza del entrenimiento](https://www.amazon.com/-/es/naturaleza-del-entrenamiento-Complejidad-resistencia/dp/8409426331/ref=sr_1_1?adgrpid=1343604918589420&dib=eyJ2IjoiMSJ9.c0jj7v_PNqIlyypXeKAA6-E8Olsk2NHzBZ59Zl3pJktt8vKq6uAMhVqexPYjwnv8WYdeZN5VxIok3SIVGJF_qrgrOqVlab_rWJK8i5gjoCeVqILKQstg4gR8SQN7uLbN.sia7XMo6iKLUsTs0UnqrxsISOBHWZ2gHv3s0RpCUW0k&dib_tag=se&hvadid=83975624976902&hvbmt=be&hvdev=c&hvlocphy=91297&hvnetw=o&hvqmt=e&hvtargid=kwd-83976348896265%3Aloc-190&hydadcr=22135_13576412&keywords=la+naturaleza+del+entrenamiento&mcid=36cf4cf295c93f4d80a1c06860b7f190&msclkid=c84f333c600d1eaf4e315a05ae84b8cc&qid=1765396108&sr=8-1)** (España)
+
+Reviewed: This is a book about endurance training in general. Manuel is a big proponent of training like our ancestors lived, which is a very interesting concept, although not one that I'm sure I fully agree with. Discussed more [here](https://deusexvita.substack.com/p/october-2025-book-round-up)
+
 
 ### Science Fiction
 
@@ -205,7 +221,7 @@ Audiobook available
 **[La Rebelión de las Masas por José Ortega y Gasset](https://www.charmcitybooks.com/item/oJynxZFvq8d3cJES1QgB9w)** (España)
 Reviewed: Reviewed in-depth [here](https://open.substack.com/pub/deusexvita/p/review-5-of-2024-del-sentimento-tragico?r=u4cqu&utm_campaign=post&utm_medium=web&showWelcomeOnShare=true). Was a pretty difficult read, but mainly because of the ideas, although there were numerous Spanish words I was not familiar with. A strident cultural critique of our modern society
 
-** [Del sentimiento trágico de la vida por Miguel de Unamuno](https://www.charmcitybooks.com/item/eK5xTFXACoYacOoW4F4BUw)** (España)
+**[Del sentimiento trágico de la vida por Miguel de Unamuno](https://www.charmcitybooks.com/item/eK5xTFXACoYacOoW4F4BUw)** (España)
 Reviewed: Reviewed in-depth [here](https://open.substack.com/pub/deusexvita/p/review-5-of-2024-del-sentimento-tragico?r=u4cqu&utm_campaign=post&utm_medium=web&showWelcomeOnShare=true). A difficult read, but mainly because of the quoted philosophers and references, and less so because of the Spanish. I did however, find Unamuno less straightforward than Ortega y Gasset, and thus more difficult to understand.
 
 Audiobook available on YouTube

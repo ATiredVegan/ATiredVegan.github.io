@@ -35,7 +35,7 @@ Audiobook available
 
 Reviewed: Not reviewed in-depth, but I think this book is pretty bad. On the level of Fourth Wing. Might be your jam if you like that kind of thing though. 
 
-**[El Bestiario de Axlin]((https://www.amazon.com/-/es/dp/B089T9M3XZ/ref=sr_1_2?crid=1MVVTS2Q8T06X&dib=eyJ2IjoiMSJ9.POQe9TqgNLGzb0-sFpIcuqs9Coax_CppAD1fY5NGU5VrizWYP9Se4lR9XIIcqr3ltQWksdBKV5xBolQo_ZFFHHRSNefw6n93tzH-cyeF7S4.wI8mb7IvNKdVRJ4L2hIDmodr9uvOlg37JA9-8kik948&dib_tag=se&keywords=el+bestiario+de+axlin&qid=1765395899&sprefix=el+bestiario%2Caps%2C99&sr=8-2)** (España)
+**[El Bestiario de Axlin](https://www.amazon.com/-/es/dp/B089T9M3XZ/ref=sr_1_2?crid=1MVVTS2Q8T06X&dib=eyJ2IjoiMSJ9.POQe9TqgNLGzb0-sFpIcuqs9Coax_CppAD1fY5NGU5VrizWYP9Se4lR9XIIcqr3ltQWksdBKV5xBolQo_ZFFHHRSNefw6n93tzH-cyeF7S4.wI8mb7IvNKdVRJ4L2hIDmodr9uvOlg37JA9-8kik948&dib_tag=se&keywords=el+bestiario+de+axlin&qid=1765395899&sprefix=el+bestiario%2Caps%2C99&sr=8-2)** (España)
 
 Reviewed: Not reviewed in-depth, but much better than Memorias Idhun. One of the best post-apocalyptic settings I've ever seen. Discussed [here](https://deusexvita.substack.com/p/november-2025-book-round-up)
 
@@ -81,7 +81,7 @@ Reviewed: Reviewed in-depth [here](https://medium.com/language-hub/olvidado-rey-
 
 Audiobook available
 
-**[La saga de los confines](https://www.amazon.com/-/es/DIAS-DEL-VENADO-SAGA-CONFINES/dp/9877252767/ref=sr_1_3?dib=eyJ2IjoiMSJ9.5GwltknOgCRw8nUycbwJjdokMJlakax1BKeZ4EkFVrrEDr80wTrP16kQ1DjxheX5azH37eEMuQKpBcOCkw5wR1x1g_tMul8vYsvUdYUEYWrIk7Qgw5B9CjqiQ_SGi9Z8B27CtX7Nnoefq_gnRXqrp3l_7SG5F0IFtZVGC82XXQQjq9q4fB9aN9P66NXdAju2OU9ELABPgNgm0Tmor3V6e9UBwqO2umiDBWGlDRhHDcY.vw-D_47lmapYQTVCXPIDQGqm1dFEARvpCCS7amBJZJ8&dib_tag=se&qid=1754075429&refinements=p_27%3ALILIANA+BODOC&s=books&sr=1-3)** (Argentina)
+**[La saga de los confines](https://www.amazon.com/-/es/dp/B0DJMVY2DM/ref=sr_1_1?crid=18DG71Q53CSAP&dib=eyJ2IjoiMSJ9.tbk8vQB5z6q5ozCUZHHbysPaJclyGBx7Llp-Pd7t5lWVxRsrRpHobDTVFkrMfXnNz4YLBnPj2SzsP4-fo59WUxE_MtHgNi1RrPI_jv_LkdJ7MTJ6VZgEbL4UjGTx6AbuA1c0Bd7HPYVxC_Q3UInWU0fqkVWbRE2E2DFpU44D7KiXpp2sDLyk0kistG_Ho74iwvYpviKPh2C5KLx5uLBxfg.uyY4Nb3A-5a3TIpo8bOB9rlC23Nad3nyalBhOwF9rkw&dib_tag=se&keywords=la+saga+de+los+confines+by+liliana+bodoc&nsdOptOutParam=true&qid=1765397365&sprefix=la+saga+de+lo%2Caps%2C73&sr=8-1)** (Argentina)
 
 Reviewed: I have no in-depth review of this (still have to finish the third book). This trilogy is a fantasy retelling of the invasion of the Americas with a big dose of Tolkein. The writing can be a little confusing at times, but the plot is very straightforward. 
 
@@ -106,6 +106,12 @@ Audiobook available
 Reviewed: Ass book. Read this for Refold book club and we all found it insufferable. Don't read 
 
 Audiobook available 
+
+**[En agosto nos vemos](https://www.amazon.com/-/es/dp/B0CX26XD9Q/ref=sr_1_1?crid=3VU1AD0FJN9KI&dib=eyJ2IjoiMSJ9.lEr1wbV723Mxjz2gV59pqmEti4n4_iQfGKOKWY3TOo0ksydhEmA7kALCmugwtQ10CRWR1Zrsht2Az8KRYzqdLJb_gOdH77YFMuTlGehJWDFWCYKekn9b8Qe-8sZkptTMlgOAnOF_NU23J3UNfyDSssD7WASSH1JJYVPrQ47sja0zxhhREmUjJFjvCoNURZGK3Nv0pX8TM4KVxVZrwZA2tkVo0S878uNjAAoBkcFJk8Q.3dBXaGNdUZslN79CiuDKoSh_NxcKA5oicLQ23MKl8Hs&dib_tag=se&keywords=en+agosto+nos+vemos&qid=1765397096&sprefix=en+agosto%2Caps%2C87&sr=8-1)** (Colombia)
+
+Reviewed: no in-depth review, but this was a short,fun book about a family tradition of serial cheating over the summer on vacation :). Posthumous publication by Gabo, so quality isn't as good as his other stuff 
+
+Audiobook available.
 
 ### Historical Fiction
 
@@ -170,7 +176,8 @@ Audiobook available
 Reviewed I haven’t reviewed this in depth, but this book was too filled with names and dates. I discuss more in this [blog post](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-700-hour-update-eab1867eb69b).
 
 No audiobook available. Kindle Unlimited.
-
+**[Petrocalipsis](https://www.amazon.com/-/es/Antonio-Turiel-ebook/dp/B08HD2QL27/ref=sr_1_1?__mk_es_US=ÅMÅŽÕÑ&crid=2XB4NFHMO9N93&dib=eyJ2IjoiMSJ9.jwjmE5DGp8hbXZayyOLjrO1QPL33tR-pUrc2lLuz25SbjaoS0I5X14xCDeEHlsaCSzHhMUCZt6Rp_XzsZakqYg.XK8WK1I60HGLsdHWtzir-__YP3lhdVM6PoiRLTz9B6Y&dib_tag=se&keywords=petrocalipsis&qid=1765396915&sprefix=petrocalipsis%2Caps%2C84&sr=8-1)** (España)
+This book is by Spanish oceanographer and climate science Antonio Turiel. It's generally about the energy crisis and why various proposed solutions are nto going to work. Highly recommend checking it out, especially if you are a fan of collapse-related content in English (Nate Hagens, JMG, etc.) 
 
 **[Aprendiendo a aprender](https://www.charmcitybooks.com/item/TpjyBv6Z1g4o5jllYGtxeQ)** (España)
 Plenty of similar books in English (Ultralearning, Make it Stick, etc.), but this was an excellent recap for me of science-based learning strategies to help me expand my Spanish vocabulary to the education domain. Bonus points for being originally in Spanish.

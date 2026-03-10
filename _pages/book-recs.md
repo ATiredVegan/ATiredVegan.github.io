@@ -27,17 +27,17 @@ Audiobook available
 
 **[Como agua para chocolate](https://bookshop.org/a/120094/9780385721233)** (México)
 
-Not reviewed in-depth, but discussed [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-800-hour-update-3d8349d6af9b). Short, sweet and lyrical.
+Not reviewed in-depth, but discussed [in my 800-hour post](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-800-hour-update-3d8349d6af9b). Short, sweet and lyrical.
 
 Audiobook available
 
-**[Memorias de Idhun: La resistencia](https://www.thriftbooks.com/w/la-resistencia_laura-gallego-garca/708786/?resultid=00ee68b9-1162-4857-b0d9-01c418fb2236#isbn=0593082621&edition=31675179)** (España) 
+**[Memorias de Idhun: la resistencia](https://www.thriftbooks.com/w/la-resistencia_laura-gallego-garca/708786/?resultid=00ee68b9-1162-4857-b0d9-01c418fb2236#isbn=0593082621&edition=31675179)** (España) 
 
 Not reviewed in-depth, but I think this book is pretty bad. On the level of Fourth Wing. Might be your jam if you like that kind of thing though. 
 
-**[El Bestiario de Axlin](https://www.thriftbooks.com/w/el-bestiario-de-axlin_laura-gallego-garca/22179251/?resultid=a8add441-6237-4ab4-9bb5-a5a3011863fa#isbn=9568474811&edition=65784727)** (España)
+**[El bestiario de Axlin](https://www.thriftbooks.com/w/el-bestiario-de-axlin_laura-gallego-garca/22179251/?resultid=a8add441-6237-4ab4-9bb5-a5a3011863fa#isbn=9568474811&edition=65784727)** (España)
 
-Not reviewed in-depth, but much better than Memorias Idhun. One of the best post-apocalyptic settings I've ever seen. Discussed [here](https://deusexvita.substack.com/p/november-2025-book-round-up)
+Not reviewed in-depth, but much better than Memorias Idhun. One of the best post-apocalyptic settings I've ever seen. [Limited Blog Discussion](https://deusexvita.substack.com/p/november-2025-book-round-up)
 
 Audiobook available.
 
@@ -49,11 +49,19 @@ Audiobook available.
 
 ### Memoir 
 
-**[Cajas de Cartón](https://bookshop.org/a/120094/9780618226160)** (Estados Unidos)
+**[Cajas de cartón](https://bookshop.org/a/120094/9780618226160)** (Estados Unidos)
 
 I haven't reviewed this in-depth, but I recommend it highly. Memoirs of a college professor about his childhood growing up as a migrant farm laborer. I discuss the book a little in this [blog post](https://medium.com/language-hub/refold-mass-immersion-approach-spanish-400-hour-update-c8649f6ab8de). 
 
 Audiobook available
+
+### Romance 
+
+**[El legado de Ava](https://www.amazon.com/legado-Spanish-Elena-Fuentes-Moreno/dp/1521705003)** (España) 
+
+I haven't reviewed this in depth. I read this as part of my Spain provinces challenge for the province of Albacete in the south of La Mancha. This was a quick, entertaining read, but the historical elements pissed me off, and it wasn't particularly deep. 
+
+Audiobook not available
 
 ### Non-fiction 
 
@@ -80,10 +88,14 @@ Audiobook available.
 **Criteria to Start**: These are what I would call “normal” adult books. Something you might find and read at an airport. I became comfortable with these around ~1000 hours of immersion and around 4 million words of reading.
 
 ### Fantasy 
+**[Aranmanoth](https://www.casadellibro.com/libro-aranmanoth/9788423343478/1814511)** (España)
+I have no in-depth review of this. I generally loved this and found it quite similar thematically to Olvidado rey Gudú. This one is much shorter so is probably a gentler introduction to her work.
+
+Audiobook available
 
 **[Olvidado Rey Gudú](https://www.thriftbooks.com/w/olvidado-rey-gud_ana-mara-matute/1187772/?resultid=db1cb3fd-eb62-42f3-af6c-4f1779ab56ba#isbn=8423976645&edition=13283402)** (España)
 
-Reviewed in-depth [here](https://medium.com/language-hub/olvidado-rey-gud%C3%BA-best-fantasy-youve-never-read-5a8228fb330a). Absolutely nothing like it in English. Highly recommend. Also recommend a reread at a more advanced level.
+[Review](https://medium.com/language-hub/olvidado-rey-gud%C3%BA-best-fantasy-youve-never-read-5a8228fb330a). Absolutely nothing like it in English. Highly recommend. Also recommend a reread at a more advanced level.
 
 Audiobook available
 
@@ -176,6 +188,7 @@ Audiobook available.
 
 **[Largo petaló de mar](https://bookshop.org/a/120094/9781984899170)** (Chile/US)
 [Review](https://deusexvita.substack.com/p/review-4-of-2023-largo-petalo-de). Sprawling family saga about the Spanish Civil War, Latin American immigration, and political conflict in Chile. Very manageable in terms of vocab, but a lot of description and little dialogue.
+
 Audiobook Available
 
 
@@ -184,10 +197,15 @@ No in-depth review. Follows the life of Violeta del Valle from 1920 to 2020 (Spa
 
 Audiobook Available
 
+**[Aquitania](https://www.casadellibro.com/libro-aquitania-premio-planeta-2020/9788408235514/11824402)** (España)
+[Review](https://substack.com/@joshuaderrick/p-187635433). Sensationalist historical fiction that felt very modern. Do not recommend. Counted for my province challenge for Ávala. 
+
+Audiobook Available 
+
 ### Non-fiction
 
 **[No te arrepientas](https://www.buscalibre.us/libro-no-te-arrepientas/9788413845012/p/54482555)** (España)
-I haven’t reviewed this in depth, but thought was a little too preachy and perhaps too biased. However, nice counterpoint to the standard anti-colonization narratives. A little discussion [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-600-hour-update-72a8980acfc3).
+I haven’t reviewed this in depth, but thought was a little too preachy and perhaps too biased. However, nice counterpoint to the standard anti-colonization narratives. A little discussion [in my 600-hour update](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-600-hour-update-72a8980acfc3).
 
 Audiobook available 
 
@@ -197,7 +215,7 @@ I haven’t reviewed this in depth, but I don’t like Perez-Reverte’s writing
 Audiobook available 
 
 **[La gran aventura del reino de asturias](https://www.thriftbooks.com/w/gran-aventura-del-reino-de-asturias_jos-javier-esparza/21046351/?resultid=773dc997-4beb-44e0-bd88-36cef55c7b81#edition=60167924&idiq=83673196)**(España)
-I haven’t reviewed this in depth, but this book was too filled with names and dates. I discuss more in this [blog post](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-700-hour-update-eab1867eb69b).
+I haven’t reviewed this in depth, but this book was too filled with names and dates. I discuss more in [my 700-hour update](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-700-hour-update-eab1867eb69b).
 
 No audiobook available. Kindle Unlimited.
 
@@ -212,7 +230,7 @@ Plenty of similar books in English (Ultralearning, Make it Stick, etc.), but thi
 Audiobook available
 
 **[La naturaleza del entrenamiento](https://www.amazon.com/gp/product/B0B85SCXWW/ref=x_gr_bb_kindle?caller=Goodreads&tag=x_gr_bb_kindle-20)** (España)
-This is a book about endurance training in general. Manuel is a big proponent of training like our ancestors lived, which is a very interesting concept, although not one that I'm sure I fully agree with. Discussed more [here](https://deusexvita.substack.com/p/october-2025-book-round-up)
+This is a book about endurance training in general. Manuel is a big proponent of training like our ancestors lived, which is a very interesting concept, although not one that I'm sure I fully agree with. Discussed more in my [October 2025 book round-up](https://deusexvita.substack.com/p/october-2025-book-round-up)
 
 No audiobook available
 
@@ -252,7 +270,7 @@ Audiobook available not through Amazon.
 ### Fantasy
 
 **[Cuentos Completos de Jorge Luis Borges](https://bookshop.org/a/120094/9780525567127)** (Argentina)
-Haven’t reviewed in depth, but one of the best things I’ve ever read. Very difficult though. I discuss in various blog posts [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-800-hour-update-3d8349d6af9b), [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-900-hour-update-e5350ac70c83) and [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-1000-hour-update-6ab65fe56a71).
+Haven’t reviewed in depth, but one of the best things I’ve ever read. Very difficult though. I discuss in various blog posts: [8000hour](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-800-hour-update-3d8349d6af9b), [900-hour](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-900-hour-update-e5350ac70c83) and [1000-hour updates](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-1000-hour-update-6ab65fe56a71).
 
 Audiobook available
 

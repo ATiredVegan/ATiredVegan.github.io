@@ -137,17 +137,18 @@ I review this in my best books of 2025. This a collection of 5 short stories, ea
 
 Audiobook available.
 
-**[Distancia de rescate](https://bookshop.org/a/120094/9786073851015)** (Argentina) 
-
-No in-depth review. This is an urban horror story about two families that slowly descend into madness because of environmental pollution. Quite short (~100 pages), but I found to be tricky because of the writing style. 
-
-Audiobook available.
 
 **[Las cosas que perdimos en el fuego](https://bookshop.org/a/120094/9780525432548)** (Argentina)
 
 No in-depth review. This is a collection of urban horror stories set in Argentina. Most of the stories start off really well, but I found the ending of most stories (except the titular story) to end quite dissapointingly. 
 
 Audiobook available. 
+
+**[Más alla del invierno](https://bookshop.org/p/books/m-s-all-del-invierno-in-the-midst-of-winter-isabel-allende/fb7d7f33f12925d5?ean=9780525436577&next=t&next=t&affiliate=120094)** (Chile/USA) 
+
+No in-depth review. This book follows three people: a Chilean, a Guatemalan, and a New Yorker during the NYC blizzard of 2015. Each of the characters’ backstories was excellent, but I found the present-day story to be extremely disturbing and unnecessarily politically partisan.
+
+Audiobook available
 
 ### Historical Fiction
 
@@ -196,6 +197,11 @@ Audiobook Available
 No in-depth review. Follows the life of Violeta del Valle from 1920 to 2020 (Spanish Flu→ COVID) across a century of tumult in an un-named South American country (which is obviously Chile from the lack of acknowledgement of the Falklands War). I found the main character to be a selfish prick, and the lack of specifics about chilean history to be frustrating, especially compared to the other Allende book on this list.
 
 Audiobook Available
+
+**[Zorro](https://www.thriftbooks.com/w/el-zorro_isabel-allende/256244/?resultid=9995d0da-8c8f-4765-98e9-3446559c8251#edition=2568541&idiq=2217391)** (Chile/US)
+No in-depth review. The origin story of the famous California comic-book character from the 1950s. This book was also fun, but I find myself tiring of Allende’s cliched writing and simplistic morality.
+
+Audiobook available
 
 **[Aquitania](https://www.casadellibro.com/libro-aquitania-premio-planeta-2020/9788408235514/11824402)** (España)
 [Review](https://substack.com/@joshuaderrick/p-187635433). Sensationalist historical fiction that felt very modern. Do not recommend. Counted for my province challenge for Ávala. 
@@ -251,11 +257,6 @@ Audiobook available (and free with Audible membership)
 
 Audiobook available
 
-**[Plan de evasión](https://bookshop.org/a/120094/9788466364270)** (Argentina) 
-No in-depth review. This felt quite thematically similar to La inveción de Morel, but was told partly through letters which was quite cool.
-
-Audiobook available
-
 
 
 **[Cuerpos del verano](https://www.charmcitybooks.com/item/62urkjw4b84rMZp56DhwYg)** (Argentina)
@@ -266,6 +267,20 @@ Audiobook available not through Amazon.
 
 ## Advanced Books
 **Criteria to Start**: Honestly, these are the kind of books that you would struggle with in your native language, so there isn’t a set start point. I wouldn’t tackle until you’ve got at least 4 million words and some intermediate books under your belt.
+
+### General Fiction
+
+**[Distancia de rescate](https://bookshop.org/a/120094/9786073851015)** (Argentina) 
+
+No in-depth review. This is an urban horror story about two families that slowly descend into madness because of environmental pollution. Quite short (~100 pages), but I found to be tricky because of the writing style. 
+
+Audiobook available.
+
+
+**[Plan de evasión](https://bookshop.org/a/120094/9788466364270)** (Argentina) 
+No in-depth review. This felt quite thematically similar to La inveción de Morel, but was told partly through letters which was quite cool, however this made the narrative a little tricky.
+
+Audiobook available
 
 ### Fantasy
 

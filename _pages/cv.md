@@ -23,7 +23,7 @@ Positions
 
 Education
 ======
-* B.S. in Computational Biology and Creative Writing, 2020
+* B.S. in Computational Biology and Creative Writing, Massachussetts Institute of Technology, 2020
 * Passed Doctoral Candidacy Exam for Johns Hopkins CMDB Department, 2021
 * Ph.D in Cell, Molecular, and Developmental Biology, Johns Hopkins University, expected 2027
 

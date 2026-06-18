@@ -22,6 +22,8 @@ author_profile: true
 2. **[Dreams from Yesterday](https://cmsw.mit.edu/wp/wp-content/uploads/form-maker/Dreams%20from%20Yesterday.pdf)** A collection of haikus of haikus that I wrote for poetry class in 2018 and 2020.
 
 ## Software 
-1. **[ScrambleSentences-Anki add-on](https://ankiweb.net/shared/info/820248489?cb=1781020093344)** Ever memorize the content of a sentence mining card rather than the word you're trying to memorize? Look no further. ScrambleSentences generates random sentences for a user-given vocabulary word, and then randomly cycles through them every time you review the card. That way you're memorizing the word rather than the context of the sentence. [GitHub](https://github.com/ATiredVegan/ScrambleSentences) for alternate download site. 
+1. **[ScrambleSentences Anki add-on](https://ankiweb.net/shared/info/820248489?cb=1781020093344)** Ever memorize the content of a sentence mining card rather than the word you're trying to memorize? Look no further. ScrambleSentences generates random sentences for a user-given vocabulary word, and then randomly cycles through them every time you review the card. That way you're memorizing the word rather than the context of the sentence. [GitHub](https://github.com/ATiredVegan/ScrambleSentences) for alternate download site.
+
+2. **[Lexical Coverage Anki add-on](https://ankiweb.net/shared/info/861555972?cb=1781794453116)** This add-on will analyze your lexical and corpus coverage based on your sentence mining Anki cards and assign you a CEFR level. Right now this only works for Spanish, but I also want to expand this to work for Italian, although I'm hesistant to expand to other languages because I don't feel qualified to rate the quality of the corpus coverage or test if it works. 
 
 

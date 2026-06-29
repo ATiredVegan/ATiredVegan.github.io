@@ -61,7 +61,7 @@ Audiobook available
 
 I haven't reviewed this in depth. I read this as part of my Spain provinces challenge for the province of Albacete in the south of La Mancha. This was a quick, entertaining read, but the historical elements pissed me off, and it wasn't particularly deep. 
 
-Audiobook not available
+Audiobook not available.
 
 ### Non-fiction 
 
@@ -69,7 +69,7 @@ Audiobook not available
 
 I haven't reviewed this in-depth, but this is a perfect beginner book with lots of easy and repetitive vocabulary. The book talks about Ikagi, which is a Japanese philosophy of life. I talk about Ikagi a bit in this [blog post](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-500-hour-update-6cf2b8263a3c). 
 
-Audiobook available 
+Audiobook available. 
 
 **[La gran adicción: Cómo sobrevivir sin internet y no aislarse del mundo](https://www.buscalibre.us/libro-la-gran-adiccion-como-sobrevivir-sin-internet-y-no-aislarse-del-mundo/51335992/p/51335992)** (España)
 
@@ -91,19 +91,19 @@ Audiobook available.
 **[Aranmanoth](https://www.casadellibro.com/libro-aranmanoth/9788423343478/1814511)** (España)
 I have no in-depth review of this. I generally loved this and found it quite similar thematically to Olvidado rey Gudú. This one is much shorter so is probably a gentler introduction to her work.
 
-Audiobook available
+Audiobook available.
 
 **[Olvidado Rey Gudú](https://www.thriftbooks.com/w/olvidado-rey-gud_ana-mara-matute/1187772/?resultid=db1cb3fd-eb62-42f3-af6c-4f1779ab56ba#isbn=8423976645&edition=13283402)** (España)
 
 [Review](https://medium.com/language-hub/olvidado-rey-gud%C3%BA-best-fantasy-youve-never-read-5a8228fb330a). Absolutely nothing like it in English. Highly recommend. Also recommend a reread at a more advanced level.
 
-Audiobook available
+Audiobook available.
 
 **[La saga de los confines](https://www.ebay.com/itm/326765244509?_skw=Liliana+Bodoc&itmmeta=01KF1MS2X987GMWGT49XHA1WZB&hash=item4c14b9f05d:g:VbwAAeSwk7Rov3RT&itmprp=enc%3AAQALAAAA0O7PUuNWmJ%2B%2BUShgI9tQz%2FoW7MH2BDAdSdd06aPtbZtb3TwYgYZpEHD7E35CgSbgUmIyZXXZunUZlHYfkXHfaw6oT%2B5Frm4WpJqkn88Pu9ZwleW4T4x1w5YGgqCBt1bybLeNOavlhgiY5a5HPx88xDfDjcdTTqqidye8kEWiud4JqHsWeMuBFCKA7%2BKFXA3eo1Izu5vMgCPmaKeFS8qkc20%2B4A0q1kpCCI723wCEOEvLbPn8bsA%2BxDLLef3nXNn3hlt2kId50TjKm3GZOXaNvGE%3D%7Ctkp%3ABk9SR96u5LT4Zg)** (Argentina)
 
 I have no in-depth review of this (still have to finish the third book). This trilogy is a fantasy retelling of the invasion of the Americas with a big dose of Tolkien. The writing can be a little confusing at times, but the plot is very straightforward. 
 
-Audiobook available
+Audiobook available.
 
 ### General Fiction
 
@@ -111,19 +111,19 @@ Audiobook available
 
 No in-depth review of this one. Part chic-lit, part noir, this short book was predictable, but painted a vivid picture of the effects of the fall of the Soviet Union on Cuba on levels both personal and political. I found out about this book through Charco Press, which is a British publisher/translator that aims to bring new Latin-American fiction to English readers.
 
-Audiobook available
+Audiobook available.
 
 **[El libro negro de las horas](https://www.thriftbooks.com/w/el-libro-negro-de-las-horas/38226515/?resultid=4cd7c19a-cca6-43b4-8e68-a00a807dcdc3#edition=66145713&idiq=58687043)** (España)
 
 No in-depth review of this guy. Never have I ever read such a nerdy thriller in my life. This is a book about the criminal underworld surrounding…rare book dealers. Nothing like it that I’ve seen in English.
 
-Audiobook available
+Audiobook available.
 
 **[Persona normal](https://bookshop.org/a/120094/9786073907217)** (México) 
 
 Ass book. Read this for Refold book club and we all found it insufferable. Don't read 
 
-Audiobook available 
+Audiobook available. 
 
 **[En agosto nos vemos](https://bookshop.org/a/120094/9798890980588)** (Colombia)
 
@@ -144,7 +144,7 @@ No in-depth review. This is a collection of urban horror stories set in Argentin
 
 Audiobook available. 
 
-**[Más allá del invierno](https://bookshop.org/p/books/m-s-all-del-invierno-in-the-midst-of-winter-isabel-allende/fb7d7f33f12925d5?ean=9780525436577&next=t&next=t&affiliate=120094)** (Chile/USA) 
+**[Más allá del invierno](https://bookshop.org/p/books/m-s-all-del-invierno-in-the-midst-of-winter-isabel-allende/fb7d7f33f12925d5?ean=9780525436577&next=t&next=t&affiliate=120094)** (Chile/EE. UU) 
 
 No in-depth review. This book follows three people: a Chilean, a Guatemalan, and a New Yorker during the NYC blizzard of 2015. Each of the characters’ backstories was excellent, but I found the present-day story to be extremely disturbing and unnecessarily politically partisan.
 
@@ -155,50 +155,50 @@ Audiobook available
 **[Africanus](https://bookshop.org/a/120094/9788413143064)** (España)
 Not reviewed in depth but discussed [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-1100-hour-update-ac3bb7712009). Generally liked Africanus, but it becomes a bit of a slog. Great for learning Roman history though. Also not available in English.
 
-Audiobook available
+Audiobook available.
 
 **[Roma soy yo](https://bookshop.org/a/120094/9788466671781)** (España)
 No in-depth review, but discussed [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-1000-hour-update-6ab65fe56a71). Recommend much more highly than Africanus, and I don’t think there’s a similar book that focuses on this phase of Caesar’s life.
 
-Audiobook available
+Audiobook available.
 
 **[Maldita Roma](https://bookshop.org/a/120094/9788466676564)** (España)
 [Review](https://deusexvita.substack.com/p/review-2-of-2024-maldita-roma). Very entertaining, but very ridiculously biased in favor of Caesar. Lots of other resources about this time in Caesar’s political career. I wrote [more](https://substack.com/home/post/p-187635433) on this topic with an angle towards the duties and pitfalls of historical fiction.
 
-Audiobook available 
+Audiobook available.
 
 **[El guerrero a la sombra del cerezo](https://bookshop.org/a/120094/9788491291305)** (España)
 [Review](https://medium.com/language-hub/review-3-of-2023-el-guerrero-a-la-sombra-del-cerezo-3fe2632581c9). Really enjoyed the mystery element of the two plots of this one.
 
-Audiobook available
+Audiobook available.
 
 **[El imperio eres tú](https://www.thriftbooks.com/w/el-imperio-eres-t-premio-planeta-2011_javier-moro/1110675/?resultid=38c59f67-9225-4055-abf8-06430e467031#edition=7875646&idiq=7515389)** (España)
 No in-depth review but I thought this was a really interesting way to do historical fiction, blending narrative and textbook-style history. Discussed more [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-900-hour-update-e5350ac70c83).
 
-Audiobook available 
+Audiobook available. 
 
 **[La catedral del mar](https://bookshop.org/a/120094/9788499088044)** (España)
 Not reviewed in-depth, but I really enjoyed the book and the TV series. Very graphic however. Do not recommend for kids. Discussed [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-800-hour-update-3d8349d6af9b).
 
-Audiobook available
+Audiobook available.
 
 **[Sidi](https://bookshop.org/a/120094/9781644731062)** (España)
 Review in Spanish on my Goodreads. This is a (relatively) short book about a short period in the life of the Spanish hero Rodrigo Díaz de Vivar, more commonly known as El Cid. I loved the dialogue and descriptions of the battle scenes in this book, but found the character development lacking, and some of the period specific vocabulary difficult. Pérez-Reverte also sometimes writes in the most confusing way.
 
 Audiobook available.
 
-**[Largo pétalo de mar](https://bookshop.org/a/120094/9781984899170)** (Chile/US)
+**[Largo pétalo de mar](https://bookshop.org/a/120094/9781984899170)** (Chile/EE.UU)
 [Review](https://deusexvita.substack.com/p/review-4-of-2023-largo-petalo-de). Sprawling family saga about the Spanish Civil War, Latin American immigration, and political conflict in Chile. Very manageable in terms of vocab, but a lot of description and little dialogue.
 
-Audiobook Available
+Audiobook available.
 
 
-**[Violeta](https://bookshop.org/a/120094/9781644738658)** (Chile/US)
+**[Violeta](https://bookshop.org/a/120094/9781644738658)** (Chile/EE.UU)
 No in-depth review. Follows the life of Violeta del Valle from 1920 to 2020 (Spanish Flu→ COVID) across a century of tumult in an un-named South American country (which is obviously Chile from the lack of acknowledgement of the Falklands War). I found the main character to be a selfish prick, and the lack of specifics about Chilean history to be frustrating, especially compared to the other Allende book on this list.
 
-Audiobook Available
+Audiobook available.
 
-**[Zorro](https://www.thriftbooks.com/w/el-zorro_isabel-allende/256244/?resultid=9995d0da-8c8f-4765-98e9-3446559c8251#edition=2568541&idiq=2217391)** (Chile/US)
+**[Zorro](https://www.thriftbooks.com/w/el-zorro_isabel-allende/256244/?resultid=9995d0da-8c8f-4765-98e9-3446559c8251#edition=2568541&idiq=2217391)** (Chile/EE.UU)
 No in-depth review. The origin story of the famous California comic-book character from the 1950s. This book was also fun, but I find myself tiring of Allende’s cliched writing and simplistic morality.
 
 Audiobook available
@@ -206,19 +206,19 @@ Audiobook available
 **[Aquitania](https://www.casadellibro.com/libro-aquitania-premio-planeta-2020/9788408235514/11824402)** (España)
 [Review](https://substack.com/@joshuaderrick/p-187635433). Sensationalist historical fiction that felt very modern. Do not recommend. Counted for my province challenge for Álava. 
 
-Audiobook Available 
+Audiobook available. 
 
 ### Non-fiction
 
 **[No te arrepientas](https://www.buscalibre.us/libro-no-te-arrepientas/9788413845012/p/54482555)** (España)
 I haven’t reviewed this in depth, but I thought it was a little too preachy and perhaps too biased. However, nice counterpoint to the standard anti-colonization narratives. A little discussion [in my 600-hour update](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-600-hour-update-72a8980acfc3).
 
-Audiobook available 
+Audiobook available. 
 
 **[Una historia de España](https://bookshop.org/a/120094/9788420438177)** (España)
 I haven’t reviewed this in depth, but I don’t like Perez-Reverte’s writing style and I found the jokes to fly completely over my head. I discuss more in this [blog post](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-600-hour-update-72a8980acfc3).
 
-Audiobook available 
+Audiobook available. 
 
 **[La gran aventura del reino de Asturias](https://www.thriftbooks.com/w/gran-aventura-del-reino-de-asturias_jos-javier-esparza/21046351/?resultid=773dc997-4beb-44e0-bd88-36cef55c7b81#edition=60167924&idiq=83673196)** (España)
 I haven’t reviewed this in depth, but this book was too filled with names and dates. I discuss more in [my 700-hour update](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-700-hour-update-eab1867eb69b).
@@ -228,17 +228,17 @@ No audiobook available. Kindle Unlimited.
 **[Petrocalipsis](https://www.thriftbooks.com/w/petrocalipsis-crisis-energtica-global-y-cmo-no-la-vamos-a-solucionar_antonio-turiel/51967374/?resultid=76d04d4a-e22e-4ce5-9194-8a49b951525f#isbn=8417951105&edition=70709543)** (España)
 This book is by Spanish oceanographer and climate scientist Antonio Turiel. It's generally about the energy crisis and why various proposed solutions are not going to work. Highly recommend checking it out, especially if you are a fan of collapse-related content in English (Nate Hagens, JMG, etc.) 
 
-Audiobook available on [Spotify](https://open.spotify.com/album/62yQZKxCaED52jLUb0OPc1)
+Audiobook available on [Spotify](https://open.spotify.com/album/62yQZKxCaED52jLUb0OPc1).
 
 **[Aprendiendo a aprender](https://bookshop.org/a/120094/9788418045301)** (España)
 Plenty of similar books in English (Ultralearning, Make it Stick, etc.), but this was an excellent recap for me of science-based learning strategies to help me expand my Spanish vocabulary to the education domain. Bonus points for being originally in Spanish.
 
-Audiobook available
+Audiobook available.
 
 **[La naturaleza del entrenamiento](https://www.amazon.com/gp/product/B0B85SCXWW/ref=x_gr_bb_kindle?caller=Goodreads&tag=x_gr_bb_kindle-20)** (España)
 This is a book about endurance training in general. Manuel is a big proponent of training like our ancestors lived, which is a very interesting concept, although not one that I'm sure I fully agree with. Discussed more in my [October 2025 book round-up](https://deusexvita.substack.com/p/october-2025-book-round-up)
 
-No audiobook available
+No audiobook available.
 
 **[Mi país inventado](https://bookshop.org/a/120094/9780525436027)** (Chile/EE.UU)
 I discuss this book in my best books of 2025. This is a collection of nonfiction essays of Allende's reflecting on her life and the history of Chile. Best of her books in my opinion.
@@ -250,12 +250,12 @@ Audiobook available.
 **[Hijos del dios binario](https://bookshop.org/a/120094/9788466367820)** (España)
 [Review](https://medium.com/p/9ef714cf3b67). Recommend highly. One of the few thrillers I have enjoyed over the past few years.
 
-Audiobook available (and free with Audible membership)
+Audiobook available (and free with Audible membership).
 
 **[La invención de Morel](https://bookshop.org/a/120094/9788466360272)** (Argentina)
 [Review](https://medium.com/@deusexvita/dark-souls-la-invenci%C3%B3n-de-morel-and-the-role-of-art-in-society-5cf7d64b4a68). Short, mysterious, and profound.
 
-Audiobook available
+Audiobook available.
 
 
 
@@ -280,32 +280,32 @@ Audiobook available.
 **[Plan de evasión](https://bookshop.org/a/120094/9788466364270)** (Argentina) 
 No in-depth review. This felt quite thematically similar to La invención de Morel, but was told partly through letters which was quite cool, however this made the narrative a little tricky.
 
-Audiobook available
+Audiobook available.
 
 ### Fantasy
 
 **[Cuentos Completos de Jorge Luis Borges](https://bookshop.org/a/120094/9780525567127)** (Argentina)
 Haven’t reviewed in depth, but one of the best things I’ve ever read. Very difficult though. I discuss in various blog posts: [800-hour](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-800-hour-update-3d8349d6af9b), [900-hour](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-900-hour-update-e5350ac70c83) and [1000-hour updates](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-1000-hour-update-6ab65fe56a71).
 
-Audiobook available
+Audiobook available.
 
 **[Cien años de soledad por GGM](https://bookshop.org/a/120094/9780307474728)** (Colombia)
 
 [Review](https://deusexvita.substack.com/p/review-2-of-2025-cien-anos-de-soledad). This is not really a novel, but a stylized historical retelling of the history of Colombia and I found it very difficult for that reason. Gabo also loves his low frequency vocab. I would read other of his stories, like Crónica, before tackling this one. 
 
-Audiobook available
+Audiobook available.
 
 ### Philosophy
 
 **[La rebelión de las masas por José Ortega y Gasset](https://bookshop.org/a/120094/9781539477082)** (España)
 [Review](https://open.substack.com/pub/deusexvita/p/review-5-of-2024-del-sentimento-tragico?r=u4cqu&utm_campaign=post&utm_medium=web&showWelcomeOnShare=true). Was a pretty difficult read, but mainly because of the ideas, although there were numerous Spanish words I was not familiar with. A strident cultural critique of our modern society
 
-Audiobook available
+Audiobook available.
 
 **[Del sentimiento trágico de la vida por Miguel de Unamuno](https://bookshop.org/a/120094/9788418933905)** (España)
 [Review](https://open.substack.com/pub/deusexvita/p/review-5-of-2024-del-sentimento-tragico?r=u4cqu&utm_campaign=post&utm_medium=web&showWelcomeOnShare=true). A difficult read, but mainly because of the quoted philosophers and references, and less so because of the Spanish. I did however, find Unamuno less straightforward than Ortega y Gasset, and thus more difficult to understand.
 
-Audiobook available on YouTube
+Audiobook available on YouTube.
 
 
 

@@ -158,12 +158,12 @@ Not reviewed in depth but discussed [here](https://medium.com/language-hub/refol
 Audiobook available
 
 **[Roma soy yo](https://bookshop.org/a/120094/9788466671781)** (España)
-No in-depth review, but discussed [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-1000-hour-update-6ab65fe56a71). Recommend much more highly than Africanus, and I don’t think there’s a similar book that focuses on this phase of Caeser’s life.
+No in-depth review, but discussed [here](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-1000-hour-update-6ab65fe56a71). Recommend much more highly than Africanus, and I don’t think there’s a similar book that focuses on this phase of Caesar’s life.
 
 Audiobook available
 
 **[Maldita Roma](https://bookshop.org/a/120094/9788466676564)** (España)
-[Review](https://deusexvita.substack.com/p/review-2-of-2024-maldita-roma). Very entertaining, but very ridiculously biased in favor of Caesar. Lots of other resources about this time in Caesar’s political career. Wrote [more](https://substack.com/home/post/p-187635433) on this topic soon with an angle towards the duties and pitfalls of historical fiction.
+[Review](https://deusexvita.substack.com/p/review-2-of-2024-maldita-roma). Very entertaining, but very ridiculously biased in favor of Caesar. Lots of other resources about this time in Caesar’s political career. Wrote [more](https://substack.com/home/post/p-187635433) on this topic with an angle towards the duties and pitfalls of historical fiction.
 
 Audiobook available 
 
@@ -211,7 +211,7 @@ Audiobook Available
 ### Non-fiction
 
 **[No te arrepientas](https://www.buscalibre.us/libro-no-te-arrepientas/9788413845012/p/54482555)** (España)
-I haven’t reviewed this in depth, but thought was a little too preachy and perhaps too biased. However, nice counterpoint to the standard anti-colonization narratives. A little discussion [in my 600-hour update](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-600-hour-update-72a8980acfc3).
+I haven’t reviewed this in depth, but I thought it was a little too preachy and perhaps too biased. However, nice counterpoint to the standard anti-colonization narratives. A little discussion [in my 600-hour update](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-600-hour-update-72a8980acfc3).
 
 Audiobook available 
 
@@ -278,20 +278,20 @@ Audiobook available.
 
 
 **[Plan de evasión](https://bookshop.org/a/120094/9788466364270)** (Argentina) 
-No in-depth review. This felt quite thematically similar to La inveción de Morel, but was told partly through letters which was quite cool, however this made the narrative a little tricky.
+No in-depth review. This felt quite thematically similar to La invención de Morel, but was told partly through letters which was quite cool, however this made the narrative a little tricky.
 
 Audiobook available
 
 ### Fantasy
 
 **[Cuentos Completos de Jorge Luis Borges](https://bookshop.org/a/120094/9780525567127)** (Argentina)
-Haven’t reviewed in depth, but one of the best things I’ve ever read. Very difficult though. I discuss in various blog posts: [8000hour](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-800-hour-update-3d8349d6af9b), [900-hour](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-900-hour-update-e5350ac70c83) and [1000-hour updates](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-1000-hour-update-6ab65fe56a71).
+Haven’t reviewed in depth, but one of the best things I’ve ever read. Very difficult though. I discuss in various blog posts: [800hour](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-800-hour-update-3d8349d6af9b), [900-hour](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-900-hour-update-e5350ac70c83) and [1000-hour updates](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-1000-hour-update-6ab65fe56a71).
 
 Audiobook available
 
 **[Cien años de soledad por GGM](https://bookshop.org/a/120094/9780307474728)** (Colombia)
 
-[Review](https://deusexvita.substack.com/p/review-2-of-2025-cien-anos-de-soledad). This is not really a novel, but a styilized historical retelling of the history of Colombia and I found it very difficult for that reason. Gabo also loves his low frequency vocab. I would read other of his stories, like Crónica, before tackling this one. 
+[Review](https://deusexvita.substack.com/p/review-2-of-2025-cien-anos-de-soledad). This is not really a novel, but a stylized historical retelling of the history of Colombia and I found it very difficult for that reason. Gabo also loves his low frequency vocab. I would read other of his stories, like Crónica, before tackling this one. 
 
 Audiobook available
 

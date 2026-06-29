@@ -101,7 +101,7 @@ Audiobook available
 
 **[La saga de los confines](https://www.ebay.com/itm/326765244509?_skw=Liliana+Bodoc&itmmeta=01KF1MS2X987GMWGT49XHA1WZB&hash=item4c14b9f05d:g:VbwAAeSwk7Rov3RT&itmprp=enc%3AAQALAAAA0O7PUuNWmJ%2B%2BUShgI9tQz%2FoW7MH2BDAdSdd06aPtbZtb3TwYgYZpEHD7E35CgSbgUmIyZXXZunUZlHYfkXHfaw6oT%2B5Frm4WpJqkn88Pu9ZwleW4T4x1w5YGgqCBt1bybLeNOavlhgiY5a5HPx88xDfDjcdTTqqidye8kEWiud4JqHsWeMuBFCKA7%2BKFXA3eo1Izu5vMgCPmaKeFS8qkc20%2B4A0q1kpCCI723wCEOEvLbPn8bsA%2BxDLLef3nXNn3hlt2kId50TjKm3GZOXaNvGE%3D%7Ctkp%3ABk9SR96u5LT4Zg)** (Argentina)
 
-I have no in-depth review of this (still have to finish the third book). This trilogy is a fantasy retelling of the invasion of the Americas with a big dose of Tolkein. The writing can be a little confusing at times, but the plot is very straightforward. 
+I have no in-depth review of this (still have to finish the third book). This trilogy is a fantasy retelling of the invasion of the Americas with a big dose of Tolkien. The writing can be a little confusing at times, but the plot is very straightforward. 
 
 Audiobook available
 
@@ -127,24 +127,24 @@ Audiobook available
 
 **[En agosto nos vemos](https://bookshop.org/a/120094/9798890980588)** (Colombia)
 
-No in-depth review, but this was a short,fun book about a family tradition of serial cheating over the summer on vacation :). Posthumous publication by Gabo, so quality isn't as good as his other stuff 
+No in-depth review, but this was a short, fun book about a family tradition of serial cheating over the summer on vacation :). Posthumous publication by Gabo, so quality isn't as good as his other stuff 
 
 Audiobook available.
 
 **[El matrimonio de los peces rojos](https://bookshop.org/a/120094/9788483931448)** (México/France)
 
-I review this in my best books of 2025. This a collection of 5 short stories, each featuring an animal that parallels an interpersonal situation. Highly, highly recommend. 
+I review this in my best books of 2025. This is a collection of 5 short stories, each featuring an animal that parallels an interpersonal situation. Highly, highly recommend. 
 
 Audiobook available.
 
 
 **[Las cosas que perdimos en el fuego](https://bookshop.org/a/120094/9780525432548)** (Argentina)
 
-No in-depth review. This is a collection of urban horror stories set in Argentina. Most of the stories start off really well, but I found the ending of most stories (except the titular story) to end quite dissapointingly. 
+No in-depth review. This is a collection of urban horror stories set in Argentina. Most of the stories start off really well, but I found the ending of most stories (except the titular story) to end quite disappointingly. 
 
 Audiobook available. 
 
-**[Más alla del invierno](https://bookshop.org/p/books/m-s-all-del-invierno-in-the-midst-of-winter-isabel-allende/fb7d7f33f12925d5?ean=9780525436577&next=t&next=t&affiliate=120094)** (Chile/USA) 
+**[Más allá del invierno](https://bookshop.org/p/books/m-s-all-del-invierno-in-the-midst-of-winter-isabel-allende/fb7d7f33f12925d5?ean=9780525436577&next=t&next=t&affiliate=120094)** (Chile/USA) 
 
 No in-depth review. This book follows three people: a Chilean, a Guatemalan, and a New Yorker during the NYC blizzard of 2015. Each of the characters’ backstories was excellent, but I found the present-day story to be extremely disturbing and unnecessarily politically partisan.
 
@@ -163,9 +163,9 @@ No in-depth review, but discussed [here](https://medium.com/language-hub/refold-
 Audiobook available
 
 **[Maldita Roma](https://bookshop.org/a/120094/9788466676564)** (España)
-[Review](https://deusexvita.substack.com/p/review-2-of-2024-maldita-roma). Very entertaining, but very ridiculously biased in favor of Caesar. Lots of other resources about this time in Caesar’s political career. Plan to write more on this topic soon with an angle towards the duties and pitfalls of historical fiction.
+[Review](https://deusexvita.substack.com/p/review-2-of-2024-maldita-roma). Very entertaining, but very ridiculously biased in favor of Caesar. Lots of other resources about this time in Caesar’s political career. Wrote [more](https://substack.com/home/post/p-187635433) on this topic soon with an angle towards the duties and pitfalls of historical fiction.
 
-Audiboook available 
+Audiobook available 
 
 **[El guerrero a la sombra del cerezo](https://bookshop.org/a/120094/9788491291305)** (España)
 [Review](https://medium.com/language-hub/review-3-of-2023-el-guerrero-a-la-sombra-del-cerezo-3fe2632581c9). Really enjoyed the mystery element of the two plots of this one.
@@ -204,7 +204,7 @@ No in-depth review. The origin story of the famous California comic-book charact
 Audiobook available
 
 **[Aquitania](https://www.casadellibro.com/libro-aquitania-premio-planeta-2020/9788408235514/11824402)** (España)
-[Review](https://substack.com/@joshuaderrick/p-187635433). Sensationalist historical fiction that felt very modern. Do not recommend. Counted for my province challenge for Ávala. 
+[Review](https://substack.com/@joshuaderrick/p-187635433). Sensationalist historical fiction that felt very modern. Do not recommend. Counted for my province challenge for Álava. 
 
 Audiobook Available 
 
@@ -226,7 +226,7 @@ I haven’t reviewed this in depth, but this book was too filled with names and 
 No audiobook available. Kindle Unlimited.
 
 **[Petrocalipsis](https://www.thriftbooks.com/w/petrocalipsis-crisis-energtica-global-y-cmo-no-la-vamos-a-solucionar_antonio-turiel/51967374/?resultid=76d04d4a-e22e-4ce5-9194-8a49b951525f#isbn=8417951105&edition=70709543)** (España)
-This book is by Spanish oceanographer and climate science Antonio Turiel. It's generally about the energy crisis and why various proposed solutions are nto going to work. Highly recommend checking it out, especially if you are a fan of collapse-related content in English (Nate Hagens, JMG, etc.) 
+This book is by Spanish oceanographer and climate science Antonio Turiel. It's generally about the energy crisis and why various proposed solutions are not going to work. Highly recommend checking it out, especially if you are a fan of collapse-related content in English (Nate Hagens, JMG, etc.) 
 
 Audiobook available on [Spotify](https://open.spotify.com/album/62yQZKxCaED52jLUb0OPc1)
 
@@ -272,7 +272,7 @@ Audiobook available not through Amazon.
 
 **[Distancia de rescate](https://bookshop.org/a/120094/9786073851015)** (Argentina) 
 
-No in-depth review. This is an urban horror story about two families that slowly descend into madness because of environmental pollution. Quite short (~100 pages), but I found to be tricky because of the writing style. 
+No in-depth review. This is an urban horror story about two families that slowly descend into madness because of environmental pollution. Quite short (~100 pages), but I found it to be tricky because of the writing style. 
 
 Audiobook available.
 

@@ -5,7 +5,7 @@ permalink: /book-recs/
 author_profile: true
 ---
 
-One thing I really would have appreciated when I first started learning Spanish was a list of books originally in Spanish, graded by difficulty and grouped by theme. My goal for this page is to be that. I will add to this page as I continue to read. I’ll also make a note of if the audiobook is available. *Note: where possible I have linked to my bookstore.org page. This is an alternative to Amazon that gives your local bookstore of choice a 20% commission. I will also get a 10% commission if you buy the books listed here through my link*
+One thing I really would have appreciated when I first started learning Spanish was a list of books originally in Spanish, graded by difficulty and grouped by theme. My goal for this page is to be that. I will add to this page as I continue to read. I’ll also make a note of if the audiobook is available. *Note: where possible I have linked to my bookshop.org page. This is an alternative to Amazon that gives your local bookstore of choice a 20% commission. I will also get a 10% commission if you buy the books listed here through my link*
 
 ## Beginner Books 
 
@@ -43,7 +43,7 @@ Audiobook available.
 
 **[Ciertas cosas oscuras](https://bookshop.org/a/120094/9788419030047)** (Estados Unidos)
 
-Not reviewed in-depth. Not sure if to count this as a native Spanish book or not, since it was published originally in English, but the author is Mexican, and it is set in Ciudad de México. This is a fun, easy, vampire novel, with some elements of romance. Vampires feel very unique and Mexican. 
+Not reviewed in-depth. Not sure whether to count this as a native Spanish book or not, since it was published originally in English, but the author is Mexican, and it is set in Ciudad de México. This is a fun, easy, vampire novel, with some elements of romance. Vampires feel very unique and Mexican. 
 
 Audiobook available.
 

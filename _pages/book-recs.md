@@ -5,7 +5,7 @@ permalink: /book-recs/
 author_profile: true
 ---
 
-One thing I really would have appreciated when I first started learning Spanish was a list of books originally in Spanish, graded by difficulty and grouped by theme. My goal for this page is to be that. I will add to this page as I continue to read. I’ll also make a note of if the audiobook is available. *Note: where possible I have linked to my bookshop.org page. This is an alternative to Amazon that gives your local bookstore of choice a 20% commission. I will also get a 10% commission if you buy the books listed here through my link*
+One thing I really would have appreciated when I first started learning Spanish was a list of books originally in Spanish, graded by difficulty and grouped by theme. My goal for this page is to be that. I will add to this page as I continue to read. I’ll also make a note of if the audiobook is available. *Note: where possible I have linked to my bookshop.org page. This is an alternative to Amazon that gives your local bookstore of choice a 20% commission. I will also get a 10% commission if you buy the books listed here through my link.*
 
 ## Beginner Books 
 
@@ -187,14 +187,14 @@ Review in Spanish on my Goodreads. This is a (relatively) short book about a sho
 
 Audiobook available.
 
-**[Largo petaló de mar](https://bookshop.org/a/120094/9781984899170)** (Chile/US)
+**[Largo pétalo de mar](https://bookshop.org/a/120094/9781984899170)** (Chile/US)
 [Review](https://deusexvita.substack.com/p/review-4-of-2023-largo-petalo-de). Sprawling family saga about the Spanish Civil War, Latin American immigration, and political conflict in Chile. Very manageable in terms of vocab, but a lot of description and little dialogue.
 
 Audiobook Available
 
 
 **[Violeta](https://bookshop.org/a/120094/9781644738658)** (Chile/US)
-No in-depth review. Follows the life of Violeta del Valle from 1920 to 2020 (Spanish Flu→ COVID) across a century of tumult in an un-named South American country (which is obviously Chile from the lack of acknowledgement of the Falklands War). I found the main character to be a selfish prick, and the lack of specifics about chilean history to be frustrating, especially compared to the other Allende book on this list.
+No in-depth review. Follows the life of Violeta del Valle from 1920 to 2020 (Spanish Flu→ COVID) across a century of tumult in an un-named South American country (which is obviously Chile from the lack of acknowledgement of the Falklands War). I found the main character to be a selfish prick, and the lack of specifics about Chilean history to be frustrating, especially compared to the other Allende book on this list.
 
 Audiobook Available
 
@@ -215,12 +215,12 @@ I haven’t reviewed this in depth, but I thought it was a little too preachy an
 
 Audiobook available 
 
-**[Una historia de españa](https://bookshop.org/a/120094/9788420438177)** (España)
+**[Una historia de España](https://bookshop.org/a/120094/9788420438177)** (España)
 I haven’t reviewed this in depth, but I don’t like Perez-Reverte’s writing style and I found the jokes to fly completely over my head. I discuss more in this [blog post](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-600-hour-update-72a8980acfc3).
 
 Audiobook available 
 
-**[La gran aventura del reino de asturias](https://www.thriftbooks.com/w/gran-aventura-del-reino-de-asturias_jos-javier-esparza/21046351/?resultid=773dc997-4beb-44e0-bd88-36cef55c7b81#edition=60167924&idiq=83673196)**(España)
+**[La gran aventura del reino de Asturias](https://www.thriftbooks.com/w/gran-aventura-del-reino-de-asturias_jos-javier-esparza/21046351/?resultid=773dc997-4beb-44e0-bd88-36cef55c7b81#edition=60167924&idiq=83673196)** (España)
 I haven’t reviewed this in depth, but this book was too filled with names and dates. I discuss more in [my 700-hour update](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-700-hour-update-eab1867eb69b).
 
 No audiobook available. Kindle Unlimited.

@@ -5,17 +5,17 @@ permalink: /book-recs/
 author_profile: true
 ---
 
-One thing I really would have appreciated when I first started learning Spanish was a list of books originally in Spanish, graded by difficulty and grouped by theme. My goal for this page is to be that. I will add to this page as I continue to read. I’ll also make a note of if the audiobook is available.*Note:where possible I have linked to my bookstore.org page. This is an alternative to Amazon that gives your local bookstore of choice a 20% comission. I will also get a 10% comission if you buy the books listed here through my link*
+One thing I really would have appreciated when I first started learning Spanish was a list of books originally in Spanish, graded by difficulty and grouped by theme. My goal for this page is to be that. I will add to this page as I continue to read. I’ll also make a note of if the audiobook is available. *Note: where possible I have linked to my bookstore.org page. This is an alternative to Amazon that gives your local bookstore of choice a 20% commission. I will also get a 10% commission if you buy the books listed here through my link*
 
 ## Beginner Books 
 
-**Criteria to Start**: This are books I felt like I could read after the Harry Potter series fairly easily. They require completion of at least the Spanish 1K deck, and probably a couple hundred thousand words of graded readers.
+**Criteria to Start**: These are books I felt like I could read after the Harry Potter series fairly easily. They require completion of at least the Spanish 1K deck, and probably a couple hundred thousand words of graded readers.
 
 ### Fantasy 
 
 **[Sendero del guardabosques](https://bookshop.org/a/120094/9788491399704)** (España) 
 
-[Review of book 5](https://deusexvita.substack.com/p/review-9-of-2023-el-refugio-secreto). Books aren't the best quality (repititive, weak MC, little character development), but are absolutely excellent for learning.
+[Review of book 5](https://deusexvita.substack.com/p/review-9-of-2023-el-refugio-secreto). Books aren't the best quality (repetitive, weak MC, little character development), but are absolutely excellent for learning.
 
 All 20 books are on audible. All books are eligible for Kindle Unlimited. 
 
@@ -33,7 +33,7 @@ Audiobook available
 
 **[Memorias de Idhun: la resistencia](https://www.thriftbooks.com/w/la-resistencia_laura-gallego-garca/708786/?resultid=00ee68b9-1162-4857-b0d9-01c418fb2236#isbn=0593082621&edition=31675179)** (España) 
 
-Not reviewed in-depth, but I think this book is pretty bad. On the level of Fourth Wing. Might be your jam if you like that kind of thing though. 
+Not reviewed in-depth, but I think this book is pretty bad. On the level of Fourth Wing. Might be your jam if you like that kind of thing, though. 
 
 **[El bestiario de Axlin](https://www.thriftbooks.com/w/el-bestiario-de-axlin_laura-gallego-garca/22179251/?resultid=a8add441-6237-4ab4-9bb5-a5a3011863fa#isbn=9568474811&edition=65784727)** (España)
 
@@ -41,7 +41,7 @@ Not reviewed in-depth, but much better than Memorias Idhun. One of the best post
 
 Audiobook available.
 
-**[Ciertas cosas oscuras](https://bookshop.org/a/120094/9788419030047)** (Estados Unidos
+**[Ciertas cosas oscuras](https://bookshop.org/a/120094/9788419030047)** (Estados Unidos)
 
 Not reviewed in-depth. Not sure if to count this as a native Spanish book or not, since it was published originally in English, but the author is Mexican, and it is set in Ciudad de México. This is a fun, easy, vampire novel, with some elements of romance. Vampires feel very unique and Mexican. 
 

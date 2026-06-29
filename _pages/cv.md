@@ -18,12 +18,12 @@ Johns Hopkins University
 
 3520 San Martin Rd, Baltimore,MD 21218
 
-jderric4@jh.edu
+jderric4@jhu.edu
 
 Positions 
 ======
 *	Johns Hopkins University 2020-present, Biology Department (Graduate Student)
-*	Carnegie Institution 2021-2025, Embryology Deptartment, Baltimore (Graduate Student)
+*	Carnegie Institution 2021-2025, Embryology Department, Baltimore (Graduate Student)
 
 Education
 ======
@@ -43,12 +43,12 @@ Awards and Honors
 Publications
 ======
 1.	Derrick, J. T., Moll, T. O., Sweeney, D. W., Shin, J., Svecla, M., Norata, G. D., & Farber, S. A. (2026). Asialoglycoprotein receptor subunit asgr1a loss results in attenuated cholesterol absorption in zebrafish fed a Western diet. Journal of Biological Chemistry, 113239. DOI:  10.1016/j.jbc.2026.113239 PMID: 42264088.
-2.	Derrick J. T., Deme P., Haughey M. Farber S.A, Ludington W.B.. PeakClimber: A software tool for analyzing biological HPLC data using the exponential Gaussian function. Journal of Chromatography B, 124721. DOI: https://doi.org/10.1016/j.jchromb.2025.124721   PMID: 4062627.
+2.	Derrick J. T., Deme P., Haughey M., Farber S. A., Ludington W. B. (2025). PeakClimber: A software tool for analyzing biological HPLC data using the exponential Gaussian function. Journal of Chromatography B, 124721. DOI: https://doi.org/10.1016/j.jchromb.2025.124721   PMID: 4062627.
 3. William B Ludington, Haolong Zhu, Kevin Aumiller, Angela Xu, Josh Derrick,
-Structure, function, and quantitative biology of the Drosophila gut microbiome, Current Opinion in Microbiology, Volume 87,2025,102653, ISSN 1369-5274, DOI: https://doi.org/10.1016/j.mib.2025.102653 PMID: 40829214.
+Structure, function, and quantitative biology of the Drosophila gut microbiome, Current Opinion in Microbiology, Volume 87, 2025, 102653, ISSN 1369-5274, DOI: https://doi.org/10.1016/j.mib.2025.102653 PMID: 40829214.
 4.	Jones, E.W., Derrick, J.T, Nisbet, R.M. et al. First-passage-time statistics of growing microbial populations carry an imprint of initial conditions. Sci Rep 13, 21340 (2023). https://doi.org/10.1038/s41598-023-48726-w PMID: 38049502.
 5.	Kozan, D. W., Derrick, J. T., Ludington, W. B., & Farber, S. A. (2023). From worms to humans: Understanding intestinal lipid metabolism via model organisms. Biochimica et Biophysica Acta (BBA) - Molecular and Cell Biology of Lipids, 1868(4), 159290. https://doi.org/10.1016/j.bbalip.2023.159290 PMID: 36738984.
-6.	Voortman, L., Anderson, C., Urban, E., Yuan, L., Tran, S., Neuhaus-Follini, A., Derrick, J., Gregor, T., & Johnston, R. J., Jr. (2022). Temporally dynamic antagonism between transcription and chromatin compaction controls stochastic photoreceptor specification in flies. In Developmental Cell (Vol. 57, Issue 15, pp. 1817-1832.e5). Elsevier BV. https://doi.org/10.1016/j.devcel.2022.06.016 PMCID: PMID: 35835116.
+6.	Voortman, L., Anderson, C., Urban, E., Yuan, L., Tran, S., Neuhaus-Follini, A., Derrick, J., Gregor, T., & Johnston, R. J., Jr. (2022). Temporally dynamic antagonism between transcription and chromatin compaction controls stochastic photoreceptor specification in flies. In Developmental Cell (Vol. 57, Issue 15, pp. 1817-1832.e5). Elsevier BV. https://doi.org/10.1016/j.devcel.2022.06.016 PMID: 35835116.
   
 Presentations 
 ======

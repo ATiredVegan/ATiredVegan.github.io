@@ -11,9 +11,13 @@ redirect_from:
 Joshua T. Derrick
 ======
 PhD Candidate 
+
 Department of Biology
+
 Johns Hopkins University
+
 3520 San Martin Rd, Baltimore,MD 21218
+
 jderric4@jh.edu
 
 Positions 

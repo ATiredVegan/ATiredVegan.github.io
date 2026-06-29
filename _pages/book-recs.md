@@ -163,7 +163,7 @@ No in-depth review, but discussed [here](https://medium.com/language-hub/refold-
 Audiobook available
 
 **[Maldita Roma](https://bookshop.org/a/120094/9788466676564)** (España)
-[Review](https://deusexvita.substack.com/p/review-2-of-2024-maldita-roma). Very entertaining, but very ridiculously biased in favor of Caesar. Lots of other resources about this time in Caesar’s political career. Wrote [more](https://substack.com/home/post/p-187635433) on this topic with an angle towards the duties and pitfalls of historical fiction.
+[Review](https://deusexvita.substack.com/p/review-2-of-2024-maldita-roma). Very entertaining, but very ridiculously biased in favor of Caesar. Lots of other resources about this time in Caesar’s political career. I wrote [more](https://substack.com/home/post/p-187635433) on this topic with an angle towards the duties and pitfalls of historical fiction.
 
 Audiobook available 
 
@@ -226,7 +226,7 @@ I haven’t reviewed this in depth, but this book was too filled with names and 
 No audiobook available. Kindle Unlimited.
 
 **[Petrocalipsis](https://www.thriftbooks.com/w/petrocalipsis-crisis-energtica-global-y-cmo-no-la-vamos-a-solucionar_antonio-turiel/51967374/?resultid=76d04d4a-e22e-4ce5-9194-8a49b951525f#isbn=8417951105&edition=70709543)** (España)
-This book is by Spanish oceanographer and climate science Antonio Turiel. It's generally about the energy crisis and why various proposed solutions are not going to work. Highly recommend checking it out, especially if you are a fan of collapse-related content in English (Nate Hagens, JMG, etc.) 
+This book is by Spanish oceanographer and climate scientist Antonio Turiel. It's generally about the energy crisis and why various proposed solutions are not going to work. Highly recommend checking it out, especially if you are a fan of collapse-related content in English (Nate Hagens, JMG, etc.) 
 
 Audiobook available on [Spotify](https://open.spotify.com/album/62yQZKxCaED52jLUb0OPc1)
 
@@ -285,7 +285,7 @@ Audiobook available
 ### Fantasy
 
 **[Cuentos Completos de Jorge Luis Borges](https://bookshop.org/a/120094/9780525567127)** (Argentina)
-Haven’t reviewed in depth, but one of the best things I’ve ever read. Very difficult though. I discuss in various blog posts: [800hour](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-800-hour-update-3d8349d6af9b), [900-hour](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-900-hour-update-e5350ac70c83) and [1000-hour updates](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-1000-hour-update-6ab65fe56a71).
+Haven’t reviewed in depth, but one of the best things I’ve ever read. Very difficult though. I discuss in various blog posts: [800-hour](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-800-hour-update-3d8349d6af9b), [900-hour](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-900-hour-update-e5350ac70c83) and [1000-hour updates](https://medium.com/language-hub/refold-approach-to-language-learning-spanish-1000-hour-update-6ab65fe56a71).
 
 Audiobook available
 
